@@ -6,8 +6,9 @@
            ⋆｡ ﾟ☁︎｡ ⋆｡ ﾟ☾ ﾟ｡ ⋆ "𝕴𝖙 𝕷𝖔𝖔𝖐𝖘 𝖑𝖎𝖐𝖊 𝕴 𝖆𝖒 𝖙𝖍𝖊 𝖇𝖊𝖘𝖙 𝖆𝖓𝖉 𝖞𝖔𝖚'𝖗𝖊 𝕿𝖍𝖊 𝖜𝖔𝖗𝖘𝖙!" ‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ☾.‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ   
 
 
-           
-  ![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/f2a2fbbe-2667-4c6d-bfbb-88351982d2be)
+
+
+![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/f2a2fbbe-2667-4c6d-bfbb-88351982d2be)
                               
 
 
@@ -17,6 +18,9 @@
 
 
   ![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/1ce727b3-de31-4fec-bd55-eb99e176c6a8)
+
+
+  
 
 𝕴 𝖌𝖔 𝕭𝖞 𝕯𝖚𝖘𝖙! , 𝕬𝖘𝖍𝖊𝖘 ![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/60a76354-976a-4742-822b-f1ab3e0d2678)
  𝖗𝖆𝖙𝖍𝖊𝖗 𝕿𝖔𝖟𝖍
