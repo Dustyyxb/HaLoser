@@ -89,13 +89,16 @@
 ⠀                   ⠀romanticizing problematic media.
 
 ![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/71937ed9-c864-449a-b7bf-49f0139f728b)
-
+                                                          
+                                                          -ˋˏ ༻❁༺ ˎˊ-𝕾𝖒𝖆𝖑𝖑 𝖓𝖔𝖙𝖊𝖊𝖊!!!
  𝙸'𝚖 𝚊 𝚟𝚎𝚛𝚢 𝚜𝚎𝚗𝚜𝚝𝚒𝚟𝚎 𝚙𝚎𝚛𝚜𝚘𝚗 𝚙𝚕𝚎𝚊𝚜𝚎 𝚍𝚘𝚗'𝚝 𝚞𝚜𝚎 𝚊𝚗𝚢 𝚍𝚛𝚢 𝚝𝚎𝚡𝚝𝚜 𝚘𝚛 𝚖𝚎𝚊𝚗 𝚠𝚘𝚛𝚍𝚜 𝚝𝚘𝚠𝚊𝚛𝚍𝚜 𝚖𝚎 𝚎𝚟𝚎𝚗 𝚒𝚏 𝚒𝚝 𝚒𝚜 𝚊 𝚓𝚘𝚔𝚎 𝚘𝚛 𝚏𝚘𝚛 𝚏𝚞𝚗, 𝚒'𝚕𝚕 𝚊𝚌𝚝𝚞𝚊𝚕𝚕𝚢 𝚌𝚛𝚢. 
  𝚊𝚗𝚍 𝚘𝚏𝚌 𝚊𝚖 𝚊 𝚌𝚛𝚢𝚋𝚊𝚋𝚢 𝚒 𝚌𝚛𝚢 𝚘𝚟𝚎𝚛 𝚎𝚟𝚎𝚛𝚢𝚝𝚑𝚒𝚗𝚐.  𝚒𝚏 𝚒 𝚖𝚊𝚍𝚎 𝚢𝚘𝚞 𝚊𝚗𝚗𝚘𝚢𝚎𝚍 𝚘𝚛 𝚞𝚗𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎 𝙿𝙻𝙴𝙰𝚂𝙴 𝚝𝚎𝚕𝚕 𝚖𝚎 𝚒'𝚕𝚕 𝚝𝚛𝚢 𝚝𝚘 𝚌𝚑𝚊𝚗𝚐𝚎..彡
  ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/ab757aad-7521-46a2-afa1-50f50ec33424)
 
- ೄྀ࿐ ˊˎ-𝕾𝖙𝖆𝖙𝖚𝖊!! ;; 
- 🟢 ; ONLINE!! ON DEVICE PLS INT!!! :3!
+                                                ೄྀ࿐ ˊˎ-𝕾𝖙𝖆𝖙𝖚𝖊!! ;; 
+   
+   
+  🟢 ; ONLINE!! ON DEVICE PLS INT!!! :3!
  ⛔; Busy or offtab W2i! don't resist! .
 🌙;Away irl or studying doing workೄྀ࿐ ˊˎ-
 
