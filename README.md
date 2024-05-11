@@ -4,10 +4,10 @@
 
 
  ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/a4edded5-6147-473c-86f5-c5a2b7da81f5)
-                                          ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/ae4c7734-990b-49ac-9837-76d2cab65da1)
+                          ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/71966da1-5e12-47b5-bbd6-075d8d1cdceb)
 
-!!!!!!!!!!!!!!!!!!!!!!!!WIP!!!!!!!!!! UNFINISHED!
-    ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/69940ce6-128b-4493-81b5-89430d4e8fa7)
+
+   ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/69940ce6-128b-4493-81b5-89430d4e8fa7)
 
 
 
@@ -100,5 +100,23 @@
  ⛔; Busy or offtab W2i! don't resist! .
 🌙;Away irl or studying doing workೄྀ࿐ ˊˎ-
 
+  ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/1d367e69-75ba-453a-a9b6-e5ed6af37554)
 
+
+            -ˋˏ ༻❁༺ ˎˊ-KINS! ;;-ˋˏ ༻❁༺ ˎˊ-
+ ·˚ ༘₊· ͟͟͞͞꒰➳𝕯𝖚𝖘𝖙!𝖘𝖆𝖓𝖘 
+ 𝕿𝖍𝖊 𝖈𝖍𝖔𝖘𝖊𝖓 𝖔𝖓𝖊 𝖔𝖗
+ 𝖙𝖍𝖊 𝖉𝖆𝖗𝖐 𝖑𝖔𝖗𝖉 
+ 𝕰𝖆𝖗𝖙𝖍 𝖋𝖗𝖔𝖒 𝖘𝖔𝖑𝖆𝖗𝖇𝖆𝖑𝖑𝖘૮꒰ ˶• ༝ •˶꒱ა ♡
+
+![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/b3b353f1-458c-42f2-99d2-57b29464c02f)
+                    
+                     *ೃ༄LEAVING SO SOON?*ೃ༄
+ Oh? guess You're leaving..!
  
+ 𝚃𝚑𝚊𝚝'𝚜 𝚊𝚕𝚕! 𝚋𝚢𝚎 𝚃𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐!! 𝙸𝙻𝚈!!!!!!!!
+  ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/845f66c4-0c18-4cc9-b4b5-ecea89490bcd)
+
+ ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/a4edded5-6147-473c-86f5-c5a2b7da81f5)
+ 
+ ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/51b113e9-6842-48f0-a9e0-6253eb165f5e)
