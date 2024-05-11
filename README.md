@@ -55,50 +55,32 @@
 
 
 
-                     ⍣ ೋ DNI'S!!!!︶꒦꒷
-⠀    ⠀— xenophobic
 
-⠀⠀— sinophobic
 
-⠀⠀— colorist
-
-⠀⠀— orientalist
-
-⠀⠀— anti blm
-
-⠀⠀— anti black
-
-⠀⠀— pro blue lives matter/alm
-
-⠀⠀— anti stop asian hate
-
-⠀⠀— you say slurs you can't reclaim
-
-⠀⠀— you think people in racial minorities can't also be racist
-
-⠀⠀— you think white people can be oppressed for being white
-
-⠀⠀- islamophobic
--  sexist
--pro shippers!...
-
-⠀⠀— anti anti, anti harassment, pro fiction, com ship, etc
-
-⠀⠀shipping illegal ships
-
-⠀⠀⠀⠀— incest, pedophilia, etc
-
-⠀⠀— you think fiction doesn't affect reality
-
-⠀⠀sexualizing minors
-
-⠀⠀fetishizing lgbtq+ pairings
-
-⠀⠀⠀identifying as a minor attracted person/pedophile
-
-⠀⠀identifying as a fujoshi/fudanshi
-
-⠀⠀romanticizing problematic media
+                                          ⍣ ೋ DNI'S!!!!︶꒦꒷
+⠀                                         - xenophobic
+⠀                                          — sinophobic
+⠀⠀                                           — colorist
+⠀⠀                                          — orientalist
+⠀                                             ⠀— anti blm
+⠀                                            ⠀— anti black
+⠀                                        ⠀— pro blue lives matter/alm
+⠀                                       ⠀— anti stop asian hate
+⠀                                 ⠀— you say slurs you can't reclaim
+⠀⠀                        — you think people in racial minorities can't also be racist
+⠀⠀                       — you think white people can be oppressed for being white
+⠀                                          ⠀- islamophobic
+                                                -  sexist
+                                             -pro shippers!...
+⠀⠀                       — anti anti, anti harassment, pro fiction, com ship, etc
+⠀                               ⠀shipping illegal ships
+⠀⠀                           ⠀⠀— incest, pedophilia, etc
+⠀                     ⠀— you think fiction doesn't affect reality
+⠀                  ⠀sexualizing minors
+⠀                    ⠀fetishizing lgbtq+ pairings
+⠀⠀               ⠀identifying as a minor attracted person/pedophile
+⠀⠀                    identifying as a fujoshi/fudanshi
+⠀                   ⠀romanticizing problematic media
 
 
  
