@@ -117,6 +117,7 @@
  𝚃𝚑𝚊𝚝'𝚜 𝚊𝚕𝚕! 𝚋𝚢𝚎 𝚃𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐!! 𝙸𝙻𝚈!!!!!!!!
   ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/845f66c4-0c18-4cc9-b4b5-ecea89490bcd)
 
- ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/a4edded5-6147-473c-86f5-c5a2b7da81f5)
- 
- ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/51b113e9-6842-48f0-a9e0-6253eb165f5e)
+ ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/6bfaf4e8-9ec6-4782-9262-a45c66e7e7b4)
+
+![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/49d4bc82-3e88-4626-8ef6-9979b4d4a13d)
+
