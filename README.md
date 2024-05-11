@@ -1,9 +1,10 @@
 
-![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/51b113e9-6842-48f0-a9e0-6253eb165f5e)
-![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/b5eb55af-92c8-47c0-960e-423d563230fc)
+           ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/51b113e9-6842-48f0-a9e0-6253eb165f5e)
+          ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/b5eb55af-92c8-47c0-960e-423d563230fc)
 
 
-![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/a4edded5-6147-473c-86f5-c5a2b7da81f5)
+                           ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/a4edded5-6147-473c-86f5-c5a2b7da81f5)
+                          ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/ae4c7734-990b-49ac-9837-76d2cab65da1)
 
 !!!!!!!!!!!!!!!!!!!!!!!!WIP!!!!!!!!!! UNFINISHED!
     ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/69940ce6-128b-4493-81b5-89430d4e8fa7)
