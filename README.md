@@ -34,8 +34,7 @@
 
 ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/6d6322bb-e03d-4979-9341-e86babce16d7)
 
- ﹥*:ꔫ:*+ﾟPronouns Are He/Him They/them !, Male![back](https://github.com/Dustyyxb/HaLoser/assets/153450745/a2fd8968-20bd-4dbf-b531-6c5c4e45a13e)
-
+ ﹥*:ꔫ:*+ﾟPronouns Are He/Him They/them !, Male!![back](https://github.com/Dustyyxb/HaLoser/assets/153450745/19c8d0b0-5228-4c21-9cc2-8cd0ccae186a)
 
 
 
