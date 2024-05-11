@@ -51,14 +51,15 @@
                                                 𝓑𝓪𝓬𝓴𝓻𝓸𝓸𝓶𝓼 ,
                                             𝓐𝓷𝓲𝓶𝓪𝓽𝓲𝓸𝓷 𝓿𝓼 𝓪𝓷𝓲𝓶𝓪𝓽𝓸𝓻
                                     𝓸𝓻 𝓐𝓷𝓲𝓶𝓪𝓽𝓲𝓸𝓷 𝓿𝓼 𝓶𝓲𝓷𝓮𝓬𝓻𝓪𝓯𝓽
-                             𝓑𝓐𝓢𝓘𝓒𝓐𝓛𝓛𝓨 𝓘𝓕 𝓨𝓞𝓤'𝓡𝓔 𝓐 𝓐𝓛𝓐𝓝 𝓑𝓔𝓒𝓚𝓔𝓡'𝓢 𝓕𝓐𝓝!!! :3
+                             𝓑𝓐𝓢𝓘𝓒𝓐𝓛𝓛𝓨 𝓘𝓕 𝓨𝓞𝓤'𝓡𝓔 𝓐 𝓐𝓛𝓐𝓝 𝓑𝓔𝓒𝓚𝓔𝓡'𝓢 𝓕𝓐𝓝!!! :3 
 
 
 
+![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/fafc5142-296b-4374-96d8-d98fa2d4d17b)
 
 
-                                          ⍣ ೋ DNI'S!!!!︶꒦꒷
-⠀                                         - xenophobic
+                               ⍣ ೋ DNI'S!!!!︶꒦꒷
+⠀                                        - xenophobic
 ⠀                                          — sinophobic
 ⠀⠀                                           — colorist
 ⠀⠀                                          — orientalist
@@ -80,17 +81,4 @@
 ⠀                    ⠀fetishizing lgbtq+ pairings
 ⠀⠀               ⠀identifying as a minor attracted person/pedophile
 ⠀⠀                    identifying as a fujoshi/fudanshi
-⠀                   ⠀romanticizing problematic media
-
-
- 
-
-
-
-
-
-
-
-
-
-        
+⠀                   ⠀romanticizing problematic media.
