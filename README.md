@@ -1,5 +1,6 @@
 !!!!!!!!!!!!!!!!!!!!!!!!WIP!!!!!!!!!! UNFINISHED!
-          ![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/3a565e1e-d891-43cb-a0af-07afb069f60b)
+    ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/69940ce6-128b-4493-81b5-89430d4e8fa7)
+
 
 
 
