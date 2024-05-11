@@ -27,14 +27,21 @@
  𝖗𝖆𝖙𝖍𝖊𝖗 𝕿𝖔𝖟𝖍![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/86581dc2-b646-4af5-af0e-ca43ced74dc1)
 ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/284abe7c-7076-424d-806a-c720aaa380a4)
 𝙿𝚕𝚎𝚊𝚜𝚎 𝚒 𝚋𝚎𝚐 𝚘𝚏 𝚢𝚘𝚞 𝚝𝚘 𝙽𝙾𝚃 𝚞𝚜𝚎 𝚜𝚎𝚡𝚞𝚊𝚕-𝚒𝚜𝚑 𝚝𝚢𝚙𝚎 𝚘𝚏 𝚗𝚒𝚌𝚔𝚗𝚊𝚖𝚎𝚜 𝚘𝚗 𝚖𝚎 𝙸𝚝 𝚠𝚒𝚕𝚕 𝚖𝚊𝚔𝚎 𝚖𝚎 𝚛𝚊𝚝𝚑𝚎𝚛 𝚞𝚗𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎 𝚊𝚗𝚍 𝚢𝚘𝚞 𝚖𝚊𝚢 𝚐𝚎𝚝 𝚑𝚒𝚍 𝚘𝚛 𝚋𝚕𝚘𝚌𝚔𝚎𝚍 𝚋𝚢 𝚖𝚎.![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/b7cf5af9-4377-4d53-bf26-8d38d2570a2b)
-𝘽𝙪𝙩 𝙖𝙣𝙮 𝙘𝙪𝙩𝙚-𝙞𝙨𝙝 𝙫𝙚𝙧𝙨𝙞𝙤𝙣 𝙤𝙛 𝙣𝙞𝙘𝙠𝙣𝙖𝙢𝙚𝙨 𝙞𝙨 𝙑𝙀𝙍𝙔 𝙖𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚𝙙!![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/be0f47fb-ecc4-4339-b986-8de7033329d6)
+𝘽𝙪𝙩 𝙖𝙣𝙮 𝙘𝙪𝙩𝙚-𝙞𝙨𝙝 𝙫𝙚𝙧𝙨𝙞𝙤𝙣 𝙤𝙛 𝙣𝙞𝙘𝙠𝙣𝙖𝙢𝙚𝙨 𝙞𝙨 𝙑𝙀𝙍𝙔 𝙖𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚𝙙!![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/be0f47fb-ecc4-4339-b986-8de7033329d6)ೄྀ࿐ ˊˎ-
 
 
    
 
 ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/6d6322bb-e03d-4979-9341-e86babce16d7)
 
- ﹥*:ꔫ:*+ﾟPronouns Are He/Him They/them !, Male!![back](https://github.com/Dustyyxb/HaLoser/assets/153450745/19c8d0b0-5228-4c21-9cc2-8cd0ccae186a)
+ ﹥*:ꔫ:*+ﾟ𝓟𝓻𝓸𝓷𝓸𝓾𝓷𝓼 𝓐𝓻𝓮 𝓗𝓮/𝓗𝓲𝓶 𝓣𝓱𝓮𝔂/𝓽𝓱𝓮𝓶 !, 𝓜𝓪𝓵𝓮!![back](https://github.com/Dustyyxb/HaLoser/assets/153450745/19c8d0b0-5228-4c21-9cc2-8cd0ccae186a)﹥*:ꔫ:*+ﾟ
+
+ ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/11d1de49-5e04-41cc-be5c-575bfed6840a)
+
+                                                          ღINTSSS!;;  `✦ ˑ ִֶ 𓂃⊹
+                                                      Green names! {ofc}!! 
+ 
+ 
 
 
 
