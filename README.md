@@ -23,7 +23,8 @@
   
 
 𝕴 𝖌𝖔 𝕭𝖞 𝕯𝖚𝖘𝖙! , 𝕬𝖘𝖍𝖊𝖘 ![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/60a76354-976a-4742-822b-f1ab3e0d2678)
- 𝖗𝖆𝖙𝖍𝖊𝖗 𝕿𝖔𝖟𝖍
+ 𝖗𝖆𝖙𝖍𝖊𝖗 𝕿𝖔𝖟𝖍![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/86581dc2-b646-4af5-af0e-ca43ced74dc1)
+
 
 
         
