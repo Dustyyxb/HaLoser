@@ -30,7 +30,11 @@
 𝘽𝙪𝙩 𝙖𝙣𝙮 𝙘𝙪𝙩𝙚-𝙞𝙨𝙝 𝙫𝙚𝙧𝙨𝙞𝙤𝙣 𝙤𝙛 𝙣𝙞𝙘𝙠𝙣𝙖𝙢𝙚𝙨 𝙞𝙨 𝙑𝙀𝙍𝙔 𝙖𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚𝙙!![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/be0f47fb-ecc4-4339-b986-8de7033329d6)
 
 
+   
 
+![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/6d6322bb-e03d-4979-9341-e86babce16d7)
+
+ ﹥*:ꔫ:*+ﾟPronouns Are He/Him They/them !, Male![back](https://github.com/Dustyyxb/HaLoser/assets/153450745/a2fd8968-20bd-4dbf-b531-6c5c4e45a13e)
 
 
 
