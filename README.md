@@ -121,3 +121,6 @@
 
 ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/49d4bc82-3e88-4626-8ef6-9979b4d4a13d)
 
+CREDITS! ;
+https://rentry.co/mikopixels
+x https://rentry.co/ulzzang
