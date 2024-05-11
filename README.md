@@ -1,5 +1,6 @@
 ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/51b113e9-6842-48f0-a9e0-6253eb165f5e)
- ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/400a4cd4-b613-420c-bd37-f92d12a7d202)
+![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/a4edded5-6147-473c-86f5-c5a2b7da81f5)
+
 !!!!!!!!!!!!!!!!!!!!!!!!WIP!!!!!!!!!! UNFINISHED!
     ![image](https://github.com/Dustyyxb/HaLoser/assets/153450745/69940ce6-128b-4493-81b5-89430d4e8fa7)
 
