@@ -18,8 +18,8 @@
 
   ![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/1ce727b3-de31-4fec-bd55-eb99e176c6a8)
 
-I go By Dust! , Ashes ![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/60a76354-976a-4742-822b-f1ab3e0d2678)
- rather Tozh
+𝕴 𝖌𝖔 𝕭𝖞 𝕯𝖚𝖘𝖙! , 𝕬𝖘𝖍𝖊𝖘 ![Back　　♡　　Pinterest　　♡　　Retrospring](https://github.com/Dustyyxb/HaLoser/assets/153450745/60a76354-976a-4742-822b-f1ab3e0d2678)
+ 𝖗𝖆𝖙𝖍𝖊𝖗 𝕿𝖔𝖟𝖍
 
 
         
